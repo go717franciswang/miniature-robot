@@ -22,3 +22,15 @@ them had a human hand print, while the other had a little desert
 creature -- Muaddib. In the middle, we can see the author, Frank 
 Herbert, contemplating about his desert story -- Dune.
 
+### Installation
+This picture fits perfectly in a bookstore or library (next to the
+Dune series preferably).
+
+### Sources:
+
+* Frank Herbert
+* desert
+* hand
+* kagaroo mouse
+* the moon
+* Dune novel
